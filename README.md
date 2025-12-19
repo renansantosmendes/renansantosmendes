@@ -101,10 +101,8 @@ I also work as a **post graduation-level lecturer**, teaching courses in **Machi
 
 ## 📫 Contact
 
-- 💼 LinkedIn: *add your link here*
-- 📧 Email: *add your email here*
-- 🌐 Portfolio / Personal Website (if available)
-
+- 💼 [LinkedIn](https://www.linkedin.com/in/renan-santos-mendes/)
+- 📧 [email](renansantosmendes@gmail.com)
 ---
 
 ## 🚀 Professional Objective
